@@ -1,5 +1,7 @@
-- 👋 Hi, I’m your mom
-- 👀 I’m interested in your mom
-- 🌱 I’m currently learning your mom
-- 💞️ I’m looking to collaborate on your mom
-- 📫 How to reach me your mom
+(pfp by ikeoo)
+
+it is i, jacko catacomb
+
+i work on a wacky lil game called egg land, and i enjoy drawing and animating
+
+enjoy your stay
